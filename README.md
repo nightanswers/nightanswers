@@ -3,7 +3,7 @@
 
 ### ⠀⠀⠀⠀⠀<sub> ໒ </sub>⠀⠀<ins> dni </ins>⠀⠀  ྀི
 > ⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
-<img src="https://64.media.tumblr.com/630129a4b19924735815bb87cf41189d/360ce6395bc84e43-26/s1280x1920/fa8fae8b1d017cdfa5ac2150b2fb19b76dab309b.gifv" width="450" height="20" />
+
 
 ### ⠀⠀⠀⠀⠀⠀<sub> ᧔᧓⠀</sub>⠀⠀<ins> main fd`s </ins>⠀⠀<sub> ᨳ𐔌՞. .՞𐦯ᜊ </sub>
 > ⠀⠀⠀⠀⠀⠀⠀⠀ʜɪɢᴜʀᴀꜱʜɪ ; ᴏʏᴀѕᴜᴍɪ.ᴘᴜɴᴘᴜɴ ; ᴅᴇʟᴛᴀʀᴜɴᴇ
