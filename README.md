@@ -1,4 +1,5 @@
-⠀⠀<img src="https://i.pinimg.com/originals/24/78/a0/2478a06d6ebc73d6dae7e1aab9edcd8a.gif" width="400" height="170" />
+<img width="500" height="250" alt="162569" src="https://github.com/user-attachments/assets/c4069579-728f-4297-926b-11384e083fd7" />
+
 
 ### ⠀⠀⠀⠀⠀<sub> ໒ </sub>⠀⠀<ins> dni </ins>⠀⠀  ྀི
 > ⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
