@@ -4,7 +4,7 @@
 ### ⠀⠀⠀⠀⠀<sub> ໒ </sub>⠀⠀<ins> dni </ins>⠀⠀  ྀི
 > ⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="81" height="28" alt="divergenceAnimated" src="https://github.com/user-attachments/assets/13a0bd99-41e4-407b-a4d9-f55396fa172f" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="81" height="28" alt="divergenceAnimated" src="https://github.com/user-attachments/assets/13a0bd99-41e4-407b-a4d9-f55396fa172f" />
 ⠀
 
 ### ⠀⠀⠀⠀⠀⠀<sub> ᧔᧓⠀</sub>⠀⠀<ins> main fd`s </ins>⠀⠀<sub> ᨳ𐔌՞. .՞𐦯ᜊ </sub>
