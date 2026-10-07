@@ -1,7 +1,7 @@
 <img width="500" height="250" alt="162569" src="https://github.com/user-attachments/assets/c4069579-728f-4297-926b-11384e083fd7" />
 
 
-### ⠀⠀⠀⠀⠀⠀⠀<ins> dni </ins>⠀
+### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<⠀⠀<ins> dni </ins>⠀
 > ⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="81" height="28" alt="divergenceAnimated" src="https://github.com/user-attachments/assets/13a0bd99-41e4-407b-a4d9-f55396fa172f" />
