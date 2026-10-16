@@ -1,11 +1,11 @@
-
+⠀⠀⠀<img width="220" height="165" alt="awyzwest" src="https://github.com/user-attachments/assets/b80a04cc-1d1e-45b8-ae21-e7da8c4eccc5" />
 
 
 ### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<ins> dni </ins>⠀
 > ⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="81" height="28" alt="divergenceAnimated" src="https://github.com/user-attachments/assets/13a0bd99-41e4-407b-a4d9-f55396fa172f" />
-⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
 
 ### ⠀⠀⠀⠀⠀⠀<sub> ᧔᧓⠀</sub>⠀⠀<ins> main fd`s </ins>⠀⠀<sub> ᨳ𐔌՞. .՞𐦯ᜊ </sub>
 > ⠀⠀⠀⠀⠀⠀⠀⠀ʜɪɢᴜʀᴀꜱʜɪ ; ᴏʏᴀѕᴜᴍɪ.ᴘᴜɴᴘᴜɴ ; ᴅᴇʟᴛᴀʀᴜɴᴇ
