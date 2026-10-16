@@ -4,8 +4,7 @@
 
 
 
-### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="30" height="30" alt="mo142" src="https://github.com/user-attachments/assets/fe43dd09-63fa-4fda-a9be-c20ebf8cebe5" />
-⠀<ins> dni </ins>⠀
+### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="30" height="30" alt="mo142" src="https://github.com/user-attachments/assets/fe43dd09-63fa-4fda-a9be-c20ebf8cebe5" /><ins> dni </ins>⠀
 > ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
 
 ⠀
