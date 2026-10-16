@@ -9,7 +9,7 @@
 
 ⠀⠀⠀⠀⠀
 ⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="240" height="40" alt="8ieaf5" src="https://github.com/user-attachments/assets/af00ca73-85eb-4650-826d-09a7e38e7919" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="1280" height="168" alt="tumblr_01086da6c8512207736af3f64d6d151e_65cfc4b6_1280" src="https://github.com/user-attachments/assets/4ef73f21-99d9-4f1c-bb28-506587074521" />
 
 
 
