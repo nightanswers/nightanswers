@@ -8,7 +8,7 @@
 > ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
 
 ⠀⠀⠀⠀⠀
-<img width="1000" height="64" alt="Tumblr-l-22289070756712" src="https://github.com/user-attachments/assets/faa70b80-78ad-4ec8-9367-0e4f1ee44756" />
+<img width="800" height="64" alt="Tumblr-l-22289070756712" src="https://github.com/user-attachments/assets/faa70b80-78ad-4ec8-9367-0e4f1ee44756" />
 
 
 
