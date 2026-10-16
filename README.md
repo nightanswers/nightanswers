@@ -26,4 +26,4 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="500" height="375" alt="28d9e953f1a8f9a7669cadd6fdf2109b" src="https://github.com/user-attachments/assets/d0c3b242-443d-4bf6-99a8-76e0e96890de" />
+⠀⠀⠀⠀⠀⠀⠀<img width="640" height="480" alt="5c8ebbfa78bef8b0a51259d10fbbc929" src="https://github.com/user-attachments/assets/beb5f930-d4b5-4c50-8a2e-1b1d06361c1a" />
