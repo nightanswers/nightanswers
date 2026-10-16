@@ -10,8 +10,7 @@
 ⠀
 ⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀<img width="790" height="190" alt="IMG-0370" src="https://github.com/user-attachments/assets/c092f99d-79a7-408e-a5c0-5a7125c099cb" />
-
+⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
