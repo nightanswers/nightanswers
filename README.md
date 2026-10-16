@@ -1,5 +1,5 @@
 ⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="500" height="375" alt="tumblr_navn1v3dd91s6banvo9_500" src="https://github.com/user-attachments/assets/ca378d93-0c68-4110-90e8-4d8a96034887" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="500" height="375" alt="tumblr_navn1v3dd91s6banvo9_500" src="https://github.com/user-attachments/assets/ca378d93-0c68-4110-90e8-4d8a96034887" />
 
 
 
@@ -8,9 +8,7 @@
 > ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
 
 ⠀⠀⠀⠀⠀
-
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="220" height="165" alt="awyzwest" src="https://github.com/user-attachments/assets/b80a04cc-1d1e-45b8-ae21-e7da8c4eccc5" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="220" height="165" alt="awyzwest" src="https://github.com/user-attachments/assets/b80a04cc-1d1e-45b8-ae21-e7da8c4eccc5" />
 
 ### ⠀⠀⠀⠀⠀⠀<sub> ᧔᧓⠀</sub>⠀⠀<ins> main fd`s </ins>⠀⠀<sub> ᨳ𐔌՞. .՞𐦯ᜊ </sub>
 > ⠀⠀⠀⠀⠀⠀⠀⠀ʜɪɢᴜʀᴀꜱʜɪ ; ᴏʏᴀѕᴜᴍɪ.ᴘᴜɴᴘᴜɴ ; ᴅᴇʟᴛᴀʀᴜɴᴇ
