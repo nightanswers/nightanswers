@@ -7,10 +7,9 @@
 ### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<ins> dni </ins>⠀
 > ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
 
-⠀⠀⠀⠀⠀
-⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="660" height="60" alt="tumblr_01086da6c8512207736af3f64d6d151e_65cfc4b6_1280" src="https://github.com/user-attachments/assets/4ef73f21-99d9-4f1c-bb28-506587074521" />
+⠀
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="350" height="27" alt="line-jyujika-b003" src="https://github.com/user-attachments/assets/7c4fafd2-c6f6-45f2-b39b-75f00019e66b" />
 
 
 
