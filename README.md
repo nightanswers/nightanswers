@@ -1,4 +1,5 @@
-<img width="500" height="250" alt="162569" src="https://github.com/user-attachments/assets/c4069579-728f-4297-926b-11384e083fd7" />
+<img width="640" height="480" alt="flcl---mamimi-smoking" src="https://github.com/user-attachments/assets/6253d0c7-ed28-4b12-ac4e-fb2407a748ae" />
+
 
 
 ### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<ins> dni </ins>⠀
