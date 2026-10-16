@@ -9,7 +9,7 @@
 
 ⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="350" height="27" alt="line-jyujika-b003" src="https://github.com/user-attachments/assets/7c4fafd2-c6f6-45f2-b39b-75f00019e66b" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="350" height="27" alt="line-jyujika-b003" src="https://github.com/user-attachments/assets/7c4fafd2-c6f6-45f2-b39b-75f00019e66b" />
 
 
 
