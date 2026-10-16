@@ -8,8 +8,8 @@
 > ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
 
 ⠀
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="37" alt="line-tsuta01" src="https://github.com/user-attachments/assets/f84efce9-5bfb-4bfa-80d9-d2405651a32b" />
+⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="37" alt="line-tsuta01" src="https://github.com/user-attachments/assets/f84efce9-5bfb-4bfa-80d9-d2405651a32b" />
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
