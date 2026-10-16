@@ -1,4 +1,3 @@
-<img width="640" height="480" alt="flcl---mamimi-smoking" src="https://github.com/user-attachments/assets/6253d0c7-ed28-4b12-ac4e-fb2407a748ae" />
 
 
 
@@ -15,3 +14,4 @@
 >  ꜱᴛᴇɪɴꜱ ɢᴀᴛᴇ ɪɴᴛ ᴘʟꜱꜱꜱꜱꜱ!!!! ;⠀ᴍᴏɴᴏ~ɢᴀᴛᴀʀɪ ; ʀ1999 ; ʙᴀɴᴅᴏʀɪ ᴏᴜʀ ɴᴏᴛᴇꜱ ; ꜱᴇᴋᴀɪ ; ᴄѕᴍ ; ᴄᴏ09 ; ʜᴀʀᴜʜɪ ᴀɴᴅ  ᴍᴏʀᴇ . . .
 
 ⠀
+ <img width="1199" height="903" alt="5a348f46a726aa3337447a18e69bbab2" src="https://github.com/user-attachments/assets/151369b5-cabe-41d1-b47f-d7b215064f40" />
