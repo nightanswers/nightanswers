@@ -1,8 +1,8 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="220" height="165" alt="awyzwest" src="https://github.com/user-attachments/assets/b80a04cc-1d1e-45b8-ae21-e7da8c4eccc5" />
 
 
-### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<ins> dni </ins>⠀
-> ⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
+### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<ins> dni </ins>⠀
+> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
