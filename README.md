@@ -10,6 +10,7 @@
 ⠀
 ⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀<img width="1280" height="161" alt="image" src="https://github.com/user-attachments/assets/b87c7c97-1a34-4fd8-978c-ea0662df767b" />
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
