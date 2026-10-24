@@ -4,8 +4,8 @@
 
                                                                                                   
 ⠀⠀
-   ⠀<sup> dni </sup>⠀⠀
- ʙᴀꜱᴇ , 𝟤𝟢+ , ᴀɴɴᴏʏɪɴɢ ʙɪᴛᴄʜᴇꜱ  & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>⠀⠀⠀
+                                 ⠀<ins> dni </ins>⠀⠀
+                      ʙᴀꜱᴇ , 𝟤𝟢+ , ᴀɴɴᴏʏɪɴɢ ʙɪᴛᴄʜᴇꜱ  & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>⠀⠀⠀
 
  <p align="center"</p> 
 <a href="https://t.me/toromi_hearts2"> 
