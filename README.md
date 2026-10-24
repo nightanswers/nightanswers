@@ -7,14 +7,13 @@
 ### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="18" height="18" alt="mo142" src="https://github.com/user-attachments/assets/fe43dd09-63fa-4fda-a9be-c20ebf8cebe5" /><ins> dni </ins>⠀
 > ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ʙᴀꜱᴇ ,⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ , 𝟤𝟢+ , ᴀɴɴᴏʏɪɴɢ ʙɪᴛᴄʜᴇꜱ  & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>⠀⠀⠀
 
-
+ <p align="center"</p> 
 <a href="https://t.me/toromi_hearts2"> 
 <img width="100" height="100" alt="2" src="https://github.com/user-attachments/assets/bcfd72a7-1961-4c0c-876d-64b53c8d3b6f" />
- <p align="center"</p> 
 
 
 
- <p align="center"</p> 
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub> ᧔᧓⠀</sub>⠀⠀<ins> main fd`s </ins>⠀⠀<sub> ᨳ𐔌՞. .՞𐦯ᜊ </sub>
 > ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ʜɪɢᴜʀᴀꜱʜɪ ; ᴏʏᴀѕᴜᴍɪ.ᴘᴜɴᴘᴜɴ ; ᴅᴇʟᴛᴀʀᴜɴᴇ
 ; ᴏᴍᴏʀɪ ;⠀ꜰʟᴄʟ ; ᴇᴍᴀɴᴏɴ ;
