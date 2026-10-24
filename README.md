@@ -6,7 +6,7 @@
  <p align="center"</p> 
 <img width="18" height="18" alt="mo142" src="https://github.com/user-attachments/assets/fe43dd09-63fa-4fda-a9be-c20ebf8cebe5" /><ins> dni </ins>⠀⠀⠀
    <p align="center"</p> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-< ʙᴀꜱᴇ ,⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ , 𝟤𝟢+ , ᴀɴɴᴏʏɪɴɢ ʙɪᴛᴄʜᴇꜱ  & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>⠀⠀⠀
+<       ʙᴀꜱᴇ ,⠀ғᴏʀᴍᴇʀ ғʀɪᴇɴᴅѕ , 𝟤𝟢+ , ᴀɴɴᴏʏɪɴɢ ʙɪᴛᴄʜᴇꜱ  & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>⠀⠀⠀
 
  <p align="center"</p> 
 <a href="https://t.me/toromi_hearts2"> 
