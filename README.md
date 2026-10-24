@@ -4,7 +4,7 @@
 
                                                                                                   
 ⠀⠀
-                                 ⠀<ins> dni </ins>⠀⠀
+                                 ⠀<ins> dni </ins>⠀⠀                                                                                                                                       
                       ʙᴀꜱᴇ , 𝟤𝟢+ , ᴀɴɴᴏʏɪɴɢ ʙɪᴛᴄʜᴇꜱ  & ʟᴀʀᴘѕ⠀ <sup> ₍ᐢ. .ᐢ₎ </sup>⠀⠀⠀
 
  <p align="center"</p> 
