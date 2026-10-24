@@ -10,10 +10,10 @@
 
 <a href="https://t.me/toromi_hearts2"> 
 <img width="100" height="100" alt="2" src="https://github.com/user-attachments/assets/bcfd72a7-1961-4c0c-876d-64b53c8d3b6f" />
+ <p align="center"</p> 
 
 
-
-### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub> ᧔᧓⠀</sub>⠀⠀<ins> main fd`s </ins>⠀⠀<sub> ᨳ𐔌՞. .՞𐦯ᜊ </sub>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub> ᧔᧓⠀</sub>⠀⠀<ins> main fd`s </ins>⠀⠀<sub> ᨳ𐔌՞. .՞𐦯ᜊ </sub>
 > ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ʜɪɢᴜʀᴀꜱʜɪ ; ᴏʏᴀѕᴜᴍɪ.ᴘᴜɴᴘᴜɴ ; ᴅᴇʟᴛᴀʀᴜɴᴇ
 ; ᴏᴍᴏʀɪ ;⠀ꜰʟᴄʟ ; ᴇᴍᴀɴᴏɴ ;
 
