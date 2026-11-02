@@ -30,4 +30,4 @@ TEXT MEEE ok? oK??
 <img width="450" height="260" alt="5c8ebbfa78bef8b0a51259d10fbbc929" src="https://github.com/user-attachments/assets/beb5f930-d4b5-4c50-8a2e-1b1d06361c1a" />
 
 
-готы лохи эмо дуры мы фанаты ларп культуры
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀готы лохи эмо дуры мы фанаты ларп культуры
