@@ -18,10 +18,6 @@
 >  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᴏʏᴀѕᴜᴍɪ.ᴘᴜɴᴘᴜɴ ;⠀⠀ꜱᴛᴇɪɴꜱ;ɢᴀᴛᴇ ;⠀ᴍᴏɴᴏ~ɢᴀᴛᴀʀɪ ;  ɴꜱᴏ; ᴄѕᴍ  ; ᴇᴍᴀɴᴏɴ ; ʜᴀʀᴜʜɪ ᴀɴᴅ  ᴍᴏʀᴇ . . .⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀
 
- <p align="center"</p> 
-<a href=https://discord.com/users/916388972077387777
-<img width="76" height="76" alt="free-icon-discord-2111370" src="https://github.com/user-attachments/assets/747eb4be-14d3-40df-b2c5-687923a79db6" />
-
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
