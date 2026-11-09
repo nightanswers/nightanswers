@@ -20,8 +20,10 @@
 
  <p align="center"</p> 
 <a href="https://t.me/toromi_hearts2"> 
-<img width="69" height="69" alt="2" src="https://github.com/user-attachments/assets/bcfd72a7-1961-4c0c-876d-64b53c8d3b6f" />
-TEXT MEEE ok? oK??⠀⠀⠀⠀⠀⠀⠀
+<img width="76" height="76" alt="2" src="https://github.com/user-attachments/assets/bcfd72a7-1961-4c0c-876d-64b53c8d3b6f" />
+<a href=https://discord.com/users/916388972077387777
+<img width="512" height="512" alt="free-icon-discord-2111363" src="https://github.com/user-attachments/assets/3989e606-8dad-4ca8-af65-9ebc34d83aa3" />
+⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
