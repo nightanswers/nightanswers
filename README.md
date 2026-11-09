@@ -7,10 +7,6 @@
    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<ins> dni </ins>⠀⠀                                                                                                                                     
 >    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ʙᴀꜱᴇ , 𝟤1+ , ᴀɴɴᴏʏɪɴɢ ʙɪᴛᴄʜᴇꜱ  & ʟᴀʀᴘѕ ₍ᐢ. .ᐢ₎ 
 
- <p align="center"</p> 
-<a href="https://t.me/toromi_hearts2"> 
-<img width="69" height="69" alt="2" src="https://github.com/user-attachments/assets/bcfd72a7-1961-4c0c-876d-64b53c8d3b6f" />
-TEXT MEEE ok? oK??
 
 
 
@@ -22,7 +18,10 @@ TEXT MEEE ok? oK??
 >  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᴏʏᴀѕᴜᴍɪ.ᴘᴜɴᴘᴜɴ ;⠀⠀ꜱᴛᴇɪɴꜱ;ɢᴀᴛᴇ ;⠀ᴍᴏɴᴏ~ɢᴀᴛᴀʀɪ ;  ɴꜱᴏ; ᴄѕᴍ  ; ᴇᴍᴀɴᴏɴ ; ʜᴀʀᴜʜɪ ᴀɴᴅ  ᴍᴏʀᴇ . . .⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀
+ <p align="center"</p> 
+<a href="https://t.me/toromi_hearts2"> 
+<img width="69" height="69" alt="2" src="https://github.com/user-attachments/assets/bcfd72a7-1961-4c0c-876d-64b53c8d3b6f" />
+TEXT MEEE ok? oK??⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
